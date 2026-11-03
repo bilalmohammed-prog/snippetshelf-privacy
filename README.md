@@ -1,2 +1,1 @@
 # snippetshelf-privacy
-# snippetshelf-privacy
